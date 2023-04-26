@@ -1,1 +1,1 @@
-https://github.com/kasiiiiaaa/Awi-doradztwo.git
+https://github.com/kasiiiiaaa/AWi-doradztwo.git
